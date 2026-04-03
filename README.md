@@ -1,3 +1,5 @@
+TLDR; I AM NOT A PROSHIPPER!!!!!
+
 Hello. As I am remaking my whole profile I’d like to leave a little message for those who have seen me.
 If you’ve been whispering me and harassing me, I want to make it clear and clarify that I am NOT a proshipper.
 I have healed and opened my eyes and realized it was wrong as I had been struggling with it for many years.
