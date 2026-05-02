@@ -3,6 +3,5 @@
   
 dirk or cryptid
 ㅤㅤhe him
-c+h freely
 
 <div align="center">
