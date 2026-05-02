@@ -3,7 +3,6 @@
   
 dirk or cryptid
 ㅤㅤhe him
-
-c*h always
+c+h freely
 
 <div align="center">
