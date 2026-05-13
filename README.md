@@ -4,6 +4,6 @@
 dirk or cryptid
 ㅤㅤhe him
 
-[pt stars](https://github.com/pt-stars) as dirk of pt!!
+c*h always oke
 
 <div align="center">
