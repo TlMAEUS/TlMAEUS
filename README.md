@@ -1,6 +1,5 @@
 <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Special+Elite&duration=2500&pause=1000&color=FFA294&center=true&vCenter=true&width=435&lines=What's+the+worst+that+I+can+say%3F;Things+are+better+if+I+stay;So+long+and+goodnight;So+long+and+goodnight+%E2%99%A1" alt="Typing SVG" /></a>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arapey&size=25&duration=2500&pause=1000&color=FFA798&center=true&vCenter=true&width=435&lines=can+you+hear+me%3F;are+you+near+me%3F;can+we+pretend+to+leave+and+then;we'll+meet+again;when+both+our+cars+collide" alt="Typing SVG" /></a>
 
 <div align="center">
 
