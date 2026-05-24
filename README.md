@@ -11,3 +11,7 @@ cudcomf  proship DNI
 <div align="center">
 
 [ata](https://ult.atabook.org/) ‎ 𓈒
+
+<div align="center">
+
+ask before inspo and dont copy my skins thx ❤️
