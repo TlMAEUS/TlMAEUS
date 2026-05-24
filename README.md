@@ -14,4 +14,5 @@ cudcomf  proship DNI
 
 <div align="center">
 
-ask before inspo and dont copy my skins thx ❤️
+ask before inspo
+dont copy my skins thx ❤️
