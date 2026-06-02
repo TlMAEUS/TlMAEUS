@@ -3,9 +3,7 @@
 
 dirk / nick he him
 
-cudcomf  proship DNI
-
-pls STOP copying my skins #thx 🧡
+c+h any time pls Thx  
 
 <div align="center">
 
