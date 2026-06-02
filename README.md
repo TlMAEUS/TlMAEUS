@@ -8,6 +8,8 @@
 
 cudcomf  proship DNI
 
+pls STOP copying my skins #thx 🧡
+
 <div align="center">
 
 [ata](https://ult.atabook.org/) ‎ 𓈒
