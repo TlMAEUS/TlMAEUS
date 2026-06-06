@@ -9,6 +9,6 @@ c+h any time pls Thx 
 
 [ata](https://ult.atabook.org/) ‎
 
-i really dont want to keep on mentioning this but ffs STOP copying my skins THX!!! its getting really annoying ^_^
+i really dont want to keep on mentioning this but ffs STOP copying my skins THX!!! ^_^
 
 <div align="center">
