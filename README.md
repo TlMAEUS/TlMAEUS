@@ -1,6 +1,6 @@
-remaking this & links
+remaking plz wait thx
 
-[ata](https://ult.atabook.org/) ‎
+[ata](https://derse.atabook.org/) ‎
 
 hi im dirk 
 
