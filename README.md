@@ -1,6 +1,4 @@
-remaking plz wait thx
-
-[ata](https://derse.atabook.org/) ‎
+remaking plz wait thx‎
 
 hi im dirk man male he him
 
