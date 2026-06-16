@@ -1,5 +1,5 @@
 remaking plz wait thx‎
 
-hi im dirk man male he him
+hi im dirk i go by he him
 
-c+h any time idc
+c+h any time Ok
