@@ -4,4 +4,4 @@
 
 My profile is still under heavy wip ! plz be patient with me Thx
 
-BTW bmf Pls i'm Leik So cute
+BTW bmf Pls im Leik So cute
